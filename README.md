@@ -1,2 +1,0 @@
-# kolyavinpus
-Yana Zist
